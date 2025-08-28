@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 ------:
 Masa depanmu dimulai dari apa yang kamu pelajari hari ini", atau "Jangan pernah berhenti belajar, karena hidup tidak pernah berhenti mengajar".
 
 
